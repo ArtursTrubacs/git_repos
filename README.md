@@ -1,1 +1,1 @@
-## 11. Nav skaidrs šis punkts, proti Iekopēt trūkstošos failus (bildes vai citus)
+## Nav skaidrs 11. punkts, proti Iekopēt trūkstošos failus (bildes vai citus)
